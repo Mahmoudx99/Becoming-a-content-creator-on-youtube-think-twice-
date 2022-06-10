@@ -1,0 +1,2 @@
+# Becoming-a-content-creator-on-youtube-think-twice-
+It's 2022, you are full of good purposes for this new year. In particular, you want to start a YouTube channel and ideally earn some money via ads. However, there are so many channels and videos out there that you have no idea where to even start. Fortunately, another good purpose for this year is to become a Data Scientist, and you want to merge your interest to become the best at both.
